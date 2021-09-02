@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @lcsreis, vulso Lucas
+d- 👋 Hi, I’m @lcsreis, vulgo Lucas
 
 Seja bem vindo!!!
